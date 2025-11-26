@@ -1,1 +1,1 @@
-.arts of lot7p by accend inc
+assets of lot7p by accend inc
